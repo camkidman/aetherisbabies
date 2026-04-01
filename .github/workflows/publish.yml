@@ -1,6 +1,6 @@
 name: Publish Markdown Files
 env:
-  BLOG_REPO: camkidman/linked-blog-starter.git
+  BLOG_REPO: camkidman/linked-blog-starter
   PUBLISH_DIR: babies-recappin
 on:
   workflow_dispatch:
