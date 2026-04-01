@@ -1,0 +1,1 @@
+![[CleanShot 2025-11-04 at 13.20.10.png]]![[CleanShot 2025-11-04 at 13.20.18.png]]

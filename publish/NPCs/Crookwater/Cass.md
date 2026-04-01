@@ -1,0 +1,2 @@
+- Seemingly a paladin of [[Bahamut]]
+- Has some kind of relationship history with [[Ellara Vess]] 

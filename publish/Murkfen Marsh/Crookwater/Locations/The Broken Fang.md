@@ -1,0 +1,3 @@
+- Tavern/Inn right by [[The Heart Path]], up next to [[The Scale Wall]]
+- Owned by [[Beomund Bailey]] and [[Joyce Bailey]]
+- 

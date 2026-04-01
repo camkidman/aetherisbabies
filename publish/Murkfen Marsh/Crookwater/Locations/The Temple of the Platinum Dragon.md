@@ -1,0 +1,3 @@
+- Found [[Leo]]
+- Also met [[Cass]]
+- Found out that Leo was in [[The Dawnbough Concord]] with [[Zamash And Yaahan]], witnessed them get eaten by a sea monster with tentacles and hasn't been back to [[The Brine]] since.

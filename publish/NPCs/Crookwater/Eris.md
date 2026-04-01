@@ -1,0 +1,3 @@
+- Dated one of the [[Killer Corpse Goblins]], Snib
+- Works at [[The Illuminarium]], pretty new
+- Players hired her to coordinate the music for [[The Tide's Turn Festival]]

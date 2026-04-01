@@ -1,0 +1,1 @@
+[[Ilmater]] indicated that the fates and the gods were "opposite sides of the scale" that keeps things balanced when it comes to how things work.

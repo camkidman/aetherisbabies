@@ -1,0 +1,5 @@
+- The 'shady' area of Crookwater, home to merchants, trade, all manners of activity in the port, and anyone that can't afford to live beyond [[The Scale Wall]]
+- [[The Broken Fang]]
+- [[The Unicorn]]
+- [[The Mourning Wood]]
+- 

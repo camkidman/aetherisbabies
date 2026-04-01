@@ -1,0 +1,1 @@
+Gore has had a conversation with his family in which it... seemed like they didn't want him around very badly.

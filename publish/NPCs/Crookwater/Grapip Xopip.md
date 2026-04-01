@@ -1,0 +1,1 @@
+A gnome that was 'guarding' the main bulletin board of the main intersection of the roads on the other side of The Wall

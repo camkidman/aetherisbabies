@@ -1,0 +1,3 @@
+- Married to [[Joyce Bailey]]
+- Co-owns [[The Broken Fang]]
+- Member of [[The Riptide]]

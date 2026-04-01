@@ -1,0 +1,4 @@
+- Was gazing into a decanter of wine
+- Traded the players in order to "bring her husband's effects back from the cavern to the North"
+- Sent [[Malkyn]] to threaten the players [[2025-12-30]]
+- 

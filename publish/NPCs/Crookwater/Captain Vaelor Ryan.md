@@ -1,0 +1,4 @@
+---
+aliases:
+  - Prince Eric
+---

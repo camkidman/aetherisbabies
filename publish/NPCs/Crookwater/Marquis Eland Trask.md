@@ -1,0 +1,3 @@
+- Bad guy?
+- Is on [[The Nobility Hit List]]
+- Killed by [[The Wasted]] -- [[2025-12-27]]

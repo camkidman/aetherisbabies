@@ -1,0 +1,1 @@
+- An open-air amphitheater located in [[The Palishool]]
