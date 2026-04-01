@@ -5,7 +5,7 @@ Last session:
 
 # TODOs (thanks Kelly)
 • Brine
-  - [ ] Find jobs - heart of the Brine
+  - [x] Find jobs - heart of the Brine
   - [ ] Look into ferry transport options to Blackbog
   - [ ] Look into sea travel options to our families
   - [ ] Learn to swim from a sailor
