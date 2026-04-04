@@ -1,5 +1,3 @@
-In clearly different writing:
-
 Elafir and I did what we needed to to survive all these years. I unlock new wisdom of the arcane regularly at this point, something about this … new version of the weave makes it more accessible than it once was. 
 
 What Thal Axiom once was is now entirely lost to us. The wasteland of the desert aside, the landscape is…. wrong. Mountains aren’t where they should be and any frame of reference I had for direction before was lost. Over the years, it was as if new civilizations and societies manifested into this world like we were in a dream. They had always been there… hadn’t they?
